@@ -28,7 +28,7 @@
 
 ### 性格
 1. 自卑
-2. 緊張
+2. 緊張 [[第七幕-1]](https://github.com/ascv0228/Theater-Arts/blob/main/character/temp/Laura/1.txt)
 
 # Jim
 ### 描述
