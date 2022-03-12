@@ -32,8 +32,8 @@
 阿曼達的女兒，同時也是湯姆的姊姊。兒時疾病讓她從此跛行，也因為心理脆弱和自卑情結把自己與外界隔絕。她用她的[玻璃雕刻收藏品](https://www.youtube.com/watch?v=fLrLbTugWEQ&t=9m26s)創造了一個自我象徵的世界，獨角獸就象徵著蘿拉因為它既獨特又脆弱。
 
 ### 性格
-1. 自卑
-2. 令人難以置信的害羞和內向。  [[第七幕-1]](https://github.com/ascv0228/Theater-Arts/blob/main/character/temp/Laura/1.txt)
+1. 自卑 
+2. 令人難以置信的害羞和內向。  [[第七幕-1]](https://github.com/ascv0228/Theater-Arts/blob/main/character/temp/Laura/1.txt) 、[[1:10:50]](https://www.youtube.com/watch?v=fLrLbTugWEQ&t=1h10m50s)
 3. 她“未能與現實建立聯繫......”
 4. “兒時期的疾病使她殘廢，一條腿比另一條稍短......”
 5. “她就像一塊她自己的玻璃系列，太精巧脆弱......”
