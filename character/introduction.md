@@ -8,7 +8,7 @@
 
 ### 性格
 1. 囉嗦 [[0:04:09]](https://www.youtube.com/watch?v=fLrLbTugWEQ&t=4m08s)
-2. 討厭嗜酒的人
+2. 討厭嗜酒的人 [對Laura 嫁給 Jim的擔心](https://github.com/ascv0228/Theater-Arts/blob/main/character/temp/Amanda/1.md)
 3. 強烈仇恨說蘿拉"跛足、古怪"的言論
 4. “一個偉大的生命力的小女人瘋狂地抓住另一個時間和地點......”
 5. “她的生活是偏執狂......”
